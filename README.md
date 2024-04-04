@@ -6,4 +6,3 @@
 
 ## Link 
 e-mail: sohui2717@gmail.com
-        sohi0413@naver.com
